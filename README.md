@@ -1,2 +1,2 @@
 # aliff.github.io
-Aliff Portfolio (Updated 2026)
+Work in progress. Dont mind me, just bumbling about breaking everything before getting something right. Carry on, literally nothing worth seeing here.
